@@ -1,0 +1,1 @@
+# qirimtatar-app
